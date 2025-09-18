@@ -1,0 +1,2 @@
+[Doc. Tech.; 7 - NOTE DE CALCUL - Demandeur; - Propriétaire; - Date Création; 11-08-2025.pdf-1.pdf](https://github.com/user-attachments/files/22414100/Doc.Tech.7.-.NOTE.DE.CALCUL.-.Demandeur.-.Proprietaire.-.Date.Creation.11-08-2025.pdf-1.pdf)
+<img width="1366" height="768" alt="Screenshot_2025-09-11_23_33_39" src="https://github.com/user-attachments/assets/daf7dc3e-941d-401a-bf68-6e977ebbc9d2" />
